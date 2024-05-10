@@ -1,1 +1,2 @@
 # SO
+losowe zadania (((:
